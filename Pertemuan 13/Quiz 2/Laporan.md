@@ -4,4 +4,4 @@
 ### Kelas : TI 1H
 ### Presensi : 07
 ### NIM : 2041720113
-### Link Youtube : 
+### Link Youtube : https://youtu.be/6D-iVdd3VC4
